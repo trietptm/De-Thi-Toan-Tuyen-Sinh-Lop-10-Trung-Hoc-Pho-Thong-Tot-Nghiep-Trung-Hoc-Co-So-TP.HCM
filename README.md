@@ -1,4 +1,4 @@
-# Đề Thi Toán Tuyển Sinh Lớp 10 Trung Học Phổ Thông/Tốt Nghiệp Trung Học Cơ Sở TP.HCM
+# Đề Thi Toán Tuyển Sinh Lớp 10 Trung Học Phổ Thông/Tốt Nghiệp Trung Học Cơ Sở của Sở Giáo dục TP.HCM
 * Tuyển tập Đề Thi Toán Tuyển Sinh Lớp 10 Trung Học Phổ Thông/Tốt Nghiệp Trung Học Cơ Sở TP.HCM Triết sử dụng cho các lớp toán nâng cao, toán chuyên PTNK, toán không chuyên PTNK cho các bạn học sinh lớp 7, 8 và lớp 9, tối 2-4-6, 3-5-7, thứ 7-CN hàng tuần.
 * Liên hệ học thử: 0962797946 (FaceTime, Zalo,...), [Facebook](https://www.facebook.com/trietptm) gần ngã ba Hồ Văn Huê - Nguyễn Kiệm, Phú Nhuận.
 https://goo.gl/maps/CghSicAvrM6nnYJ8A
