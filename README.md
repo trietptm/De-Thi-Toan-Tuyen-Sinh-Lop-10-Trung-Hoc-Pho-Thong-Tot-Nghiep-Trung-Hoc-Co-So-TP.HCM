@@ -75,6 +75,8 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 ![image](https://user-images.githubusercontent.com/526959/165671550-f3753d62-e13c-4ab2-b517-8fd1a5cc73f1.png)
 
 ## 2003-2004:
+![image](https://user-images.githubusercontent.com/526959/170249938-63e104aa-186e-4aee-b153-41c017fa583b.png)
+
 ![image](https://user-images.githubusercontent.com/526959/165671626-097da2d3-1629-4b29-8462-753baf329e56.png)
 
 ## 2002-2003:
