@@ -61,6 +61,8 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 ![image](https://user-images.githubusercontent.com/526959/165671252-82b8dfb3-e5b2-4d04-a1f9-0f922d09726a.png)
 
 ## 2007-2008:
+![image](https://user-images.githubusercontent.com/526959/170249046-327343e9-3c94-4f40-800e-ada43192b627.png)
+
 ![image](https://user-images.githubusercontent.com/526959/165671312-4e51fc80-4a96-414a-a8d1-f43097e78608.png)
 
 ## 2006-2007:
