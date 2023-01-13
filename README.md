@@ -15,6 +15,8 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 
 ![image](https://user-images.githubusercontent.com/526959/212006204-832ed70a-3019-40f4-9b0d-e375e700a862.png)
 
+![image](https://user-images.githubusercontent.com/526959/212296664-1179ab07-207b-4805-a707-4cc7721baafd.png)
+
 ## 2018-2019:
 ![image](https://user-images.githubusercontent.com/526959/165673371-1ad56b51-2560-436f-aa50-94ba79e59ba9.png)
 
