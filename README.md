@@ -88,7 +88,7 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 ## 2003-2004:
 ![image](https://user-images.githubusercontent.com/526959/170249938-63e104aa-186e-4aee-b153-41c017fa583b.png)
 
-![image](https://user-images.githubusercontent.com/526959/217490617-4c7fbf1b-dcc6-4468-9d93-f80607a3260c.png)
+![image](https://user-images.githubusercontent.com/526959/225853358-4ddde7fc-13fb-4a09-9f52-a706c2a69e11.png)
 
 ![image](https://user-images.githubusercontent.com/526959/165671626-097da2d3-1629-4b29-8462-753baf329e56.png)
 
