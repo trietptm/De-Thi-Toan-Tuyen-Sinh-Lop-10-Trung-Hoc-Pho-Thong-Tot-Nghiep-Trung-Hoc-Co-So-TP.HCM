@@ -69,6 +69,7 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 
 ## 2008-2009:
 ![image](https://user-images.githubusercontent.com/526959/165671252-82b8dfb3-e5b2-4d04-a1f9-0f922d09726a.png)
+
 ![image](https://user-images.githubusercontent.com/526959/217493937-e9751fab-c270-4426-9552-945ca46c366d.png)
 
 ## 2007-2008:
@@ -78,6 +79,8 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 
 ## 2006-2007:
 ![image](https://user-images.githubusercontent.com/526959/165671353-b3d65fca-077c-4a46-986d-3c8c3e654e7c.png)
+
+![image](https://user-images.githubusercontent.com/526959/226299120-05329766-e141-4658-9b31-1767714d150d.png)
 
 ## 2005-2006:
 ![image](https://user-images.githubusercontent.com/526959/165671418-1aa7eead-f413-4d5a-9606-494d035862d1.png)
