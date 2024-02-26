@@ -12,6 +12,10 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Trung-Hoc-Pho-Thong-Tot-Nghiep-Trung-Hoc-Co-So-TP.HCM/assets/526959/620ab31b-0bb2-44d4-ac77-6ac98a5d1f60)
 
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Trung-Hoc-Pho-Thong-Tot-Nghiep-Trung-Hoc-Co-So-TP.HCM/assets/526959/ac9fff73-aa1a-4c92-afb8-3b13ee03ac69)
+
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Trung-Hoc-Pho-Thong-Tot-Nghiep-Trung-Hoc-Co-So-TP.HCM/assets/526959/060ad599-157a-4469-9b15-055407bef1ed)
+
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Trung-Hoc-Pho-Thong-Tot-Nghiep-Trung-Hoc-Co-So-TP.HCM/assets/526959/29d0f2fa-b95a-459a-89ae-8b124240df9a)
 
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Trung-Hoc-Pho-Thong-Tot-Nghiep-Trung-Hoc-Co-So-TP.HCM/assets/526959/2bf09295-6c18-41ce-8f48-7251a66e6753)
