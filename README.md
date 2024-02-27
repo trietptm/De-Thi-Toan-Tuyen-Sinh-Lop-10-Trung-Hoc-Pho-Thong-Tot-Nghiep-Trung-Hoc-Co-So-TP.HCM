@@ -61,6 +61,8 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 ![image](https://user-images.githubusercontent.com/526959/165670701-04106700-2fe6-4173-bcc3-b08d5b9ef22c.png)
 
 ## 2015-2016:
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Trung-Hoc-Pho-Thong-Tot-Nghiep-Trung-Hoc-Co-So-TP.HCM/assets/526959/13ad6f8f-db49-4d14-9e26-17c9c7ac9a35)
+
 ![image](https://user-images.githubusercontent.com/526959/165670871-ec31f179-9684-4165-92a7-040fe7347d06.png)
 
 ## 2014-2015:
