@@ -90,6 +90,8 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 ![image](https://user-images.githubusercontent.com/526959/217500430-ae5f73c2-aa41-4a0e-b821-caeddcdd4282.png)
 
 ## 2010-2011:
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Trung-Hoc-Pho-Thong-Tot-Nghiep-Trung-Hoc-Co-So-TP.HCM/assets/526959/6d3fa8c9-929e-4a72-860e-53ca5ba48904)
+
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Trung-Hoc-Pho-Thong-Tot-Nghiep-Trung-Hoc-Co-So-TP.HCM/assets/526959/49618825-32e9-4cf5-9745-7f91ac8c7049)
 
 ![image](https://user-images.githubusercontent.com/526959/165671147-ce1a7cc3-013c-4481-a1ce-be7bd980474a.png)
