@@ -156,6 +156,14 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 ## 1995-1996:
 ![image](https://user-images.githubusercontent.com/526959/165672073-e8bad0dc-dfbb-4c8c-8782-816506e5c02c.png)
 
+## CÁC CHỦ ĐỀ/CHUYÊN ĐỀ ÔN THI TOÁN TUYỂN SINH LỚP 10 THPT/TỐT NGHIỆP THCS Ở TP.HCM:
+* Parabol và đường thẳng
+* Phương trình bậc hai và định lý Viet
+* Mô hình hàm số bậc nhất
+* Giải toán bằng cách lập phương trình, hệ phương trình
+* Hình học ứng dụng (công thức tính độ dài cung, thể tích, diện tích)
+* Bài toán hình học về tứ giác nội tiếp, tam giác đồng dạng
+* 
 
 ## THAM KHẢO THÊM:
 * https://github.com/trietptm/De-Thi-Toan-Khong-Chuyen-Tuyen-Sinh-Lop-10-PTNK
