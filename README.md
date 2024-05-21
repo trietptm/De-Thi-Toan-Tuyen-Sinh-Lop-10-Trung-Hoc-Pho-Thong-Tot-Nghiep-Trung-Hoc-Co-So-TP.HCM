@@ -157,6 +157,10 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 ![image](https://user-images.githubusercontent.com/526959/165672073-e8bad0dc-dfbb-4c8c-8782-816506e5c02c.png)
 
 
+## THAM KHẢO THÊM:
+* https://github.com/trietptm/De-Thi-Toan-Khong-Chuyen-Tuyen-Sinh-Lop-10-PTNK
+* https://github.com/trietptm/De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-Trung-Hoc-Pho-Thong-TP.HCM
+* 
 
 
 
