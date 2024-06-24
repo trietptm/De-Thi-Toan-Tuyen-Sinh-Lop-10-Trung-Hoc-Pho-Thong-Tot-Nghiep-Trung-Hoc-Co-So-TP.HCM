@@ -3,6 +3,13 @@
 * Liên hệ học thử: 0962797946 (FaceTime, Zalo,...), [Facebook](https://www.facebook.com/trietptm) gần ngã ba Hồ Văn Huê - Nguyễn Kiệm, Phú Nhuận.
 https://goo.gl/maps/CghSicAvrM6nnYJ8A
 
+## 2024-2025:
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Trung-Hoc-Pho-Thong-Tot-Nghiep-Trung-Hoc-Co-So-TP.HCM/assets/526959/285b672f-5e03-487f-a4e7-a9868dd14477)
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Trung-Hoc-Pho-Thong-Tot-Nghiep-Trung-Hoc-Co-So-TP.HCM/assets/526959/687f8fcb-d270-402c-9c44-0ea54391491a)
+
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Trung-Hoc-Pho-Thong-Tot-Nghiep-Trung-Hoc-Co-So-TP.HCM/assets/526959/22bd36fa-fb64-48ab-bf72-ebcb8b0a66a2)
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Trung-Hoc-Pho-Thong-Tot-Nghiep-Trung-Hoc-Co-So-TP.HCM/assets/526959/84e98f56-1ce3-463a-8819-0249bc48ad08)
+
 ## 2023-2024:
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Trung-Hoc-Pho-Thong-Tot-Nghiep-Trung-Hoc-Co-So-TP.HCM/assets/526959/db89c4bb-9472-4d51-848e-8bb13a40b701)
 
