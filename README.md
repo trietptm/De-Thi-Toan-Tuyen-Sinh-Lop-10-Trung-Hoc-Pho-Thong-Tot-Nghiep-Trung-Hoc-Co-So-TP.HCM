@@ -176,6 +176,7 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 * https://github.com/trietptm/De-Thi-Toan-Khong-Chuyen-Tuyen-Sinh-Lop-10-PTNK
 * https://github.com/trietptm/De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-Trung-Hoc-Pho-Thong-TP.HCM
 * https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-THPT-Hanoi
+* https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Chuyen-KHXHVNV-HN
 * https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai
 * 
 
